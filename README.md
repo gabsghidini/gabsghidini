@@ -2,9 +2,7 @@
 
 #### 💻 Full Stack Developer
 
-#### 🚀 CTO at Kreativa 77
-
-#### 🤓 Founder of Meownie Browneria
+#### 🚀 Founder at Kreativa 77
 
 #### 🤘 Guitarrist Player on my free time
 
